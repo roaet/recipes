@@ -10,7 +10,7 @@
 * 11/2 teaspoon of black pepper 
 * 2 teaspoon of secret seasoning (steak seasoning ) by Macormick
 * Crisco, vegetable oil to fry lumpia 
-* 2 scrabble egg , use as paste when you roll the lumpia 
+* 2 scambled eggs , use as paste when you roll the lumpia 
 
 When you buy the lumpia wrappers at Tim ‘s don’t forget to buy the spring
 rolls sauce. 
